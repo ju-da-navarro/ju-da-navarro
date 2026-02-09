@@ -1,4 +1,7 @@
 ## My Personal Repository
+
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/2afdf16f-942c-446a-9581-c87b0f27efbc" />
+
 ### ¿Quien Soy? 😀
 Juan David Navarro Bermudez
 ### ¿De donde Soy? 🫵
